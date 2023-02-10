@@ -1,1 +1,0 @@
-# sanakurd09
